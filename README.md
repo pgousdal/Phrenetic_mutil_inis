@@ -1,1 +1,1 @@
-Phrenetic BBS mutil ini files. Thanks to MeaTLoTioN of qwh for sharing his.
+Phrenetic BBS mutil ini files. Thanks to MeaTLoTioN of thE qUAntUm wOrmhOlE for sharing his.
